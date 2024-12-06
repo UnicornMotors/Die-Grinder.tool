@@ -10,6 +10,7 @@ When space allows, use Electric! It doesn't require the extra expense of "Air To
 
 ## index:
 - $55.59  https://www.lowes.com/pd/VEVOR-7-Amps-Trigger-Switch-Corded-Angle-Grinder/5015388813
+- $76  https://www.vevor.com/die-grinder-c_12043/vevor-die-grinder-1-4-heavy-duty-straight-die-grinder-30000rpm-6-variable-speed-p_010499411257
 - $80  https://www.harborfreight.com/4-amp-14-in-die-grinder-56932.html
 
 # bit
